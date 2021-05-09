@@ -1,4 +1,3 @@
-### Hey! 👋
+### Muin muin! 👋
 
-- 📫 How to reach me: zManuu#9725 (Discord)
-- 🏡 Near Hamburg, Germany
+- 📫 zManuu#9725 (Discord)
