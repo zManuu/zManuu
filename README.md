@@ -1,3 +1,4 @@
-### Muin muin! 👋
+### Hi there 🐳
 
-- 📫 zManuu#9725 (Discord)
+- 🔭 Working on: My game <a href="../../../Infinity-Jump#readme"><b>Infinity-Jump</b></a>
+- 📫 Reach me: zManuu#9725
